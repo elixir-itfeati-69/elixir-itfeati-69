@@ -7,3 +7,5 @@ I am 17 years old and currently taking Work Immersion under the guidance of Ms. 
 * Playing games
 * Learning
 * Watching YouTube Videos
+### Social Media
+* [My Facebook Profile](https://https://www.facebook.com/elixirmagnusdayritmanansala)
