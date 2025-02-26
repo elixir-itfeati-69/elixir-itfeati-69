@@ -8,4 +8,5 @@ I am 17 years old and currently taking Work Immersion under the guidance of Ms. 
 * Learning
 * Watching YouTube Videos
 ### Social Media
-* [My Facebook Profile](https://https://www.facebook.com/elixirmagnusdayritmanansala)
+* [Facebook](https://https://www.facebook.com/elixirmagnusdayritmanansala)
+* [Instagram](https://www.instagram.com/elixirmdayrit_mnl?igsh=MWgyenpncXN2MXY1MQ==)
