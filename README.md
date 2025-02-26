@@ -1,7 +1,5 @@
-# Elixir Magnus D. Manansala
-## 12 STEM - Knowledge
-## Work Immersion Student
-## JASHS and FEATI University.
+# Hi, I am Elixir Magnus D. Manansala
+## 12 STEM - Knowledge, Work Immersion Student
 I am 17 years old and currently taking Work Immersion under the guidance of Ms. Constantino, Mr. Azur and Mr. Garcia
 ### Hobbies
 * Playing games
